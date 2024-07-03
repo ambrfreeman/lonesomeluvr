@@ -22,4 +22,3 @@
 ![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/78592bf9-5f90-430e-93e3-ebd4730dcdda)
 
 
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/579ksESOacYCJpMtoMInm3?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
