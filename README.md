@@ -1,6 +1,6 @@
 ![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/c10fbd98-c510-44b4-9a19-f9b0580235bc)
 
-♡⠀⠀⠀she // they !!
+♡⠀  she // they !!
 
 ♡   mikey madison defender 4 lyfe
 
