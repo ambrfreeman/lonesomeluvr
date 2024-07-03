@@ -10,6 +10,8 @@
 
 ♡   usually won't int / talk first (social anxiety goez crazyy)
 
+♡   i like LIS ,, SCREAM ,, YJ ,, MLP ,, and AHS
+
 ♡   check out my spacehey !!
 
 
