@@ -24,7 +24,11 @@
 ![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/78592bf9-5f90-430e-93e3-ebd4730dcdda)
 
 
-https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/fccd63c1-7e9e-4372-8974-8cbe3c560257
+
+
+
+https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/15ca2b3f-b9ad-40b5-8bd5-5398cead8bde
+
 
 
 
