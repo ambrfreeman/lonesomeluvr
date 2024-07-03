@@ -11,3 +11,10 @@
 ♡   usually won't int / talk first (social anxiety goez crazyy)
 
 ♡   check out my spacehey !!
+
+
+![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/58cc334b-fd35-46ed-8dd5-ded3e92cc2df) 
+
+![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/7344a500-e520-4aa1-96a6-e2363fb3a751)
+
+![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/cc4d82fa-6eba-4d71-83cf-e05471d99232)
