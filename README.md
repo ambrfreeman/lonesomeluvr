@@ -1,5 +1,7 @@
 ![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/30efc4b6-86e3-4843-9d46-ae0725297856)
 
+![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/436d10de-5066-4df4-a07d-575ba4b7a8e5)
+
 
 ♡⠀  she // they !!
 
