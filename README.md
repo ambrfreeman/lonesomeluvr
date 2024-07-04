@@ -5,7 +5,7 @@
 <h1 style="font-size: 4rem">౨ৎ ⋆｡˚ [ " let the darkness set us free . "</h1> 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=default&show_offline=false&background_color=2b2017&interchange=false&bar_color=bb9c68)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=default&show_offline=false&background_color=211f1e&interchange=false&bar_color=695a51)](https://github.com/kittinan/spotify-github-profile)
 
 
 ♡⠀  she // they !!
