@@ -24,19 +24,24 @@
 ♡   check out my spacehey !!
 
 
-![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/58cc334b-fd35-46ed-8dd5-ded3e92cc2df) ![ghostafce](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/84be563b-8eae-4485-bb61-877ee90fb211)
+![ddeeeerrrrrr](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/131cb9f6-9c9a-4d96-9c1e-98b1d2d4608e)
+ ![deerrrr2](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/a5768a32-63fd-44ad-9f08-ba2ff802e3ae)
 
-![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/7344a500-e520-4aa1-96a6-e2363fb3a751) ![silenthikl](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/602d8b29-056a-40f9-94a4-228e6439a9d7)
+
+![cinnaa](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/d552efc6-0c26-4f97-b1a1-0e8a54047ca6)
+ ![cinnnnaaa2](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/82b8c276-ea6a-4d5a-ad9f-5a4604df50c2)
 
 
-![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/cc4d82fa-6eba-4d71-83cf-e05471d99232) ![crowxor](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/c5e75b78-c6a9-415a-96d3-1efa28d01451)
+
+![foresttttt](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/80f4093e-3228-429a-8978-1b71bb759ee0)
+ ![foresttttt2](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/37ded8b2-86ab-4252-8d34-da87e5575c58)
 
 
 ![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/78592bf9-5f90-430e-93e3-ebd4730dcdda) ![d2g2c9y-4f5f352e-be0b-4356-84c7-a94ebd1ad20d](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/fc1c7ab5-fe62-4b59-9cb7-8ed08f2fa3f3)
 
 
-
-![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/2ebbe55d-5a37-4e68-9963-801637a9851d) ![fluuttehrhsy](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/24211428-d745-453d-b86c-f38815e16844)
+![flutterrrrr](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/aa1beb56-f92b-49a3-8ab2-e41dbcb12802)
+ ![fluuttehrhsy](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/24211428-d745-453d-b86c-f38815e16844)
 
 
 ![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/0fe9c55d-896f-4522-ae5a-44c58e83e8a3)
