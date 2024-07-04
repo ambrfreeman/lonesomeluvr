@@ -1,6 +1,7 @@
 ![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/30efc4b6-86e3-4843-9d46-ae0725297856)
 
-![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/436d10de-5066-4df4-a07d-575ba4b7a8e5) 
+![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/5ea0f4a5-3a03-4e54-8946-288f117024bf)
+
 
 <h1 style="font-size: 4rem">౨ৎ ⋆｡˚ [ " let the darkness set us free . "</h1> 
 
@@ -38,6 +39,7 @@
 ![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/2ebbe55d-5a37-4e68-9963-801637a9851d) ![fluuttehrhsy](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/24211428-d745-453d-b86c-f38815e16844)
 
 
+![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/0fe9c55d-896f-4522-ae5a-44c58e83e8a3)
 
 
 
