@@ -2,7 +2,10 @@
 
 ![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/436d10de-5066-4df4-a07d-575ba4b7a8e5) 
 
-<h1 style="font-size: 4rem">౨ৎ ⋆｡˚ [ " let the darkness set us free . "</h1>
+<h1 style="font-size: 4rem">౨ৎ ⋆｡˚ [ " let the darkness set us free . "</h1> 
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=default&show_offline=false&background_color=2b2017&interchange=false&bar_color=bb9c68)](https://github.com/kittinan/spotify-github-profile)
 
 
 ♡⠀  she // they !!
