@@ -14,7 +14,7 @@
 
 ♡   mikey madison defender 4 lyfe
 
-♡   pls int if ur familiar w any of my interests !! plsplsplws
+♡   pls int if ur familiar w any of my interests !! plsplsplws i won't bite
 
 ♡   usually won't int / talk first (social anxiety goez crazyy)
 
