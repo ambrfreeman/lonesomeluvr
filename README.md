@@ -14,8 +14,6 @@
 
 ♡   mikey madison defender 4 lyfe
 
-♡   rblx : fluffistrawb
-
 ♡   pls int if ur familiar w any of my interests !! plsplsplws
 
 ♡   usually won't int / talk first (social anxiety goez crazyy)
