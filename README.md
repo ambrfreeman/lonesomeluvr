@@ -20,6 +20,8 @@
 
 ♡   i like LIS ,, SCREAM ,, YJ ,, MLP ,, and AHS
 
+♡   ⚠ disclaimer idk but i will literally cry if i feel like ur tone is off with me so be aware of that . .
+
 ♡   check out my spacehey !!
 
 
