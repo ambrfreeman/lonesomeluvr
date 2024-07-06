@@ -22,7 +22,7 @@
 
 ♡   check out my spacehey !!
 
-♡   ⚠ disclaimer idk but i will literally cry if i feel like ur tone is off with me so be aware of that . .
+♡   ⚠ disclaimer idk but i will literally cry if i feel like ur tone is off with me so be aware of that 
 
 
 ![ddeeeerrrrrr](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/131cb9f6-9c9a-4d96-9c1e-98b1d2d4608e)
