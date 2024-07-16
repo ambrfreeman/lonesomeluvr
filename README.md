@@ -62,10 +62,26 @@ https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/d65e1c71-06cf-4443
 
 
 
-
 ![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/7a5d4575-0ef1-4f27-b4ae-17cdc4366839)
 
 
 
 ![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/bc378567-0640-4e2c-ac7e-28554d8c4364)
+
+
+
+<h1 style="font-size: 4rem">౨ৎ -- this is my wife btw ... 🔽</h1> 
+
+
+https://github.com/user-attachments/assets/d42c889d-5c4b-4428-b0b4-51bfc93f8704
+
+
+
+
+
+
+
+
+
+
 
