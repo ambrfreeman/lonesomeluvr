@@ -18,7 +18,7 @@
 
 ♡   usually won't int / talk first (social anxiety goez crazyy)
 
-♡   i like LIS ,, SCREAM ,, YJ ,, TLOU ,, MLP ,, ST ,, ARCANE ,, and THE BOYS
+♡   i like LIS ,, SCREAM ,, YJ ,, TLOU ,, MLP ,, ST ,, ARCANE ,, FINAL DESTINATION ,, and THE BOYS
 
 ♡   check out my spacehey + sign my rs !!
 
