@@ -10,7 +10,7 @@
 
 
 
-♡⠀ she // they !!
+♡⠀ lesbian ,, blk
 
 ♡   mikey madison defender 4 lyfe
 
