@@ -3,7 +3,7 @@
 ![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/5ea0f4a5-3a03-4e54-8946-288f117024bf)
 
 
-<h1 style="font-size: 4rem">౨ৎ ⋆｡˚ [ " let the darkness set us free . "</h1> 
+<h1 style="font-size: 4rem">౨ৎ ⋆｡˚ [ " am i making you feel sick ? "</h1> 
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=default&show_offline=false&background_color=211f1e&interchange=false&bar_color=695a51)](https://github.com/kittinan/spotify-github-profile) ![51bP7CrqchL-removebg-preview](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/bf9a411b-194b-4e44-b174-df0e44c37d65)
@@ -54,8 +54,6 @@
  ![fluuttehrhsy](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/24211428-d745-453d-b86c-f38815e16844)![pookie flutter](https://github.com/user-attachments/assets/60562b68-f273-4ba6-a068-6f7f60009375)
 
 
-
-![image]([https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/0fe9c55d-896f-4522-ae5a-44c58e83e8a3])
 
 
 
