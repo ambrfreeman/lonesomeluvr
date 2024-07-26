@@ -55,7 +55,7 @@
 
 
 
-![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/0fe9c55d-896f-4522-ae5a-44c58e83e8a3)
+![image]([https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/0fe9c55d-896f-4522-ae5a-44c58e83e8a3])
 
 
 
@@ -67,12 +67,10 @@ https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/d65e1c71-06cf-4443
 
 
 
-
-![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/7a5d4575-0ef1-4f27-b4ae-17cdc4366839)
-
+![Untitled13_20240726170544](https://github.com/user-attachments/assets/3b550e9e-60ba-4d1f-ad56-80845e9a12a1)
 
 
-![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/bc378567-0640-4e2c-ac7e-28554d8c4364)
+![Untitled11_20240726164739](https://github.com/user-attachments/assets/1edabf8e-8f79-4537-8ab7-d5376de6882b)
 
 
 
