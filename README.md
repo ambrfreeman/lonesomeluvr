@@ -6,7 +6,7 @@
 <h1 style="font-size: 4rem">౨ৎ ⋆｡˚ [ " am i making you feel sick ? "</h1> 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=default&show_offline=false&background_color=211f1e&interchange=false&bar_color=695a51)](https://github.com/kittinan/spotify-github-profile) ![51bP7CrqchL-removebg-preview](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/bf9a411b-194b-4e44-b174-df0e44c37d65)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=default&show_offline=false&background_color=0A0C10&interchange=false&bar_color=725C4E)](https://github.com/kittinan/spotify-github-profile) ![51bP7CrqchL-removebg-preview](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/bf9a411b-194b-4e44-b174-df0e44c37d65)
 
 
 
