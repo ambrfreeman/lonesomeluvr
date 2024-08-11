@@ -8,7 +8,7 @@
 <h1 style="font-size: 4rem">౨ৎ ⋆｡˚ [ " am i making you feel sick ? "</h1> 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=default&show_offline=false&background_color=0A0C10&interchange=false&bar_color=725C4E)](https://github.com/kittinan/spotify-github-profile)![51bP7CrqchL-removebg-preview](https://github.com/user-attachments/assets/ec084f29-28b9-4f3e-a571-8238fa5c41f3)
+![51bP7CrqchL-removebg-preview](https://github.com/user-attachments/assets/ec084f29-28b9-4f3e-a571-8238fa5c41f3)
 
 
 
@@ -28,8 +28,7 @@
 
 
 ![ddeeeerrrrrr](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/131cb9f6-9c9a-4d96-9c1e-98b1d2d4608e)
- ![deerrrr2](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/a5768a32-63fd-44ad-9f08-ba2ff802e3ae)![bambi](https://github.com/user-attachments/assets/38761311-74ec-4c37-8056-4ce00d1d0ee0)
-
+ ![deerrrr2](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/a5768a32-63fd-44ad-9f08-ba2ff802e3ae)![bambi](https://github.com/user-attachments/assets/38761311-74ec-4c37-8056-4ce00d1d0ee0) 
 
 
 ![cinnaa](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/d552efc6-0c26-4f97-b1a1-0e8a54047ca6)
@@ -42,8 +41,7 @@
  ![foresttttt2](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/37ded8b2-86ab-4252-8d34-da87e5575c58)![bee](https://github.com/user-attachments/assets/118e7bc8-0ee6-4313-81ad-83c9175ab395)
 
 
-![dbx53ke-5b10290b-20bd-4108-91f0-acd8b40edd88](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/7591698a-05e7-41fc-b632-d5a4f981047b) ![DEEELLEE](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/2adb3ebb-1ad4-4fef-9322-355bffde1090)![max](https://github.com/user-attachments/assets/adca3558-d1c7-4d3b-8211-68047c0deeb7)
-
+![dbx53ke-5b10290b-20bd-4108-91f0-acd8b40edd88](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/7591698a-05e7-41fc-b632-d5a4f981047b) ![DEEELLEE](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/2adb3ebb-1ad4-4fef-9322-355bffde1090)![max](https://github.com/user-attachments/assets/adca3558-d1c7-4d3b-8211-68047c0deeb7) 
 
 
 
@@ -58,7 +56,7 @@
 
 
 
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=default&show_offline=false&background_color=0A0C10&interchange=false&bar_color=725C4E)](https://github.com/kittinan/spotify-github-profile)
 
 
 
