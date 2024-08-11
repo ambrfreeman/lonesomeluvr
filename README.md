@@ -24,7 +24,7 @@
 
 ♡   check out my spacehey + sign my rs !!
 
-♡   [spotify](https://open.spotify.com/user/rh2oqnubvlstyhpsucgotorqs)    [letterboxd](https://letterboxd.com/allsovls_/) [priv twitter](https://x.com/pickingflowrss)
+♡   [spotify](https://open.spotify.com/user/rh2oqnubvlstyhpsucgotorqs)    [atabook](https://ambrfreeman.atabook.org/) [priv twitter](https://x.com/pickingflowrss)
 
 
 ![ddeeeerrrrrr](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/131cb9f6-9c9a-4d96-9c1e-98b1d2d4608e)
