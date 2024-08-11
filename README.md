@@ -1,12 +1,14 @@
-![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/30efc4b6-86e3-4843-9d46-ae0725297856)
+![image](https://github.com/user-attachments/assets/3592a575-6dec-4314-90c3-c6fb43ec0e09)
 
-![image](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/5ea0f4a5-3a03-4e54-8946-288f117024bf)
+
+![image](https://github.com/user-attachments/assets/7e4215fe-5c83-4c6d-b910-9cb779598d2f)
+
 
 
 <h1 style="font-size: 4rem">౨ৎ ⋆｡˚ [ " am i making you feel sick ? "</h1> 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=default&show_offline=false&background_color=0A0C10&interchange=false&bar_color=725C4E)](https://github.com/kittinan/spotify-github-profile) ![51bP7CrqchL-removebg-preview](https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/bf9a411b-194b-4e44-b174-df0e44c37d65)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=default&show_offline=false&background_color=0A0C10&interchange=false&bar_color=725C4E)](https://github.com/kittinan/spotify-github-profile) ![51bP7CrqchL-removebg-preview](https://github.com/user-attachments/assets/ec084f29-28b9-4f3e-a571-8238fa5c41f3)
 
 
 
@@ -61,16 +63,18 @@
 
 
 
-https://github.com/lonesomeluvr/lonesomeluvr/assets/174548371/d65e1c71-06cf-4443-bd39-13ef992a8c0e
 
 
 
-![Untitled13_20240726170544](https://github.com/user-attachments/assets/3b550e9e-60ba-4d1f-ad56-80845e9a12a1)
+
+https://github.com/user-attachments/assets/8e9437a5-3409-4b91-a7e0-b5c99a989f5f
 
 
-![Untitled11_20240726164739](https://github.com/user-attachments/assets/1edabf8e-8f79-4537-8ab7-d5376de6882b)
 
 
+
+
+![Untitled44_20240810230835 (2)](https://github.com/user-attachments/assets/3f9c243b-040a-48ab-8596-e4436c506b5b)
 
 
 
