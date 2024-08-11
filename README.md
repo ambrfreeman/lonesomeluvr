@@ -8,7 +8,7 @@
 <h1 style="font-size: 4rem">౨ৎ ⋆｡˚ [ " am i making you feel sick ? "</h1> 
 
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=default&show_offline=false&background_color=0A0C10&interchange=false&bar_color=725C4E)](https://github.com/kittinan/spotify-github-profile) ![51bP7CrqchL-removebg-preview](https://github.com/user-attachments/assets/ec084f29-28b9-4f3e-a571-8238fa5c41f3)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rh2oqnubvlstyhpsucgotorqs&cover_image=true&theme=default&show_offline=false&background_color=0A0C10&interchange=false&bar_color=725C4E)](https://github.com/kittinan/spotify-github-profile)![51bP7CrqchL-removebg-preview](https://github.com/user-attachments/assets/ec084f29-28b9-4f3e-a571-8238fa5c41f3)
 
 
 
